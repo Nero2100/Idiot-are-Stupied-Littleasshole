@@ -1,1 +1,0 @@
-# Idiot-are-Stupied-Littleasshole
